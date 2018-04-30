@@ -1,0 +1,2 @@
+# adityasudhakarpseudo
+Personal Portfolio
